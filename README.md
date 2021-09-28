@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @CodeTechEARTH
+- 👀 I’m interested in all kinds of codes, programs and tech news
+- 📫 How to reach me; no way 
